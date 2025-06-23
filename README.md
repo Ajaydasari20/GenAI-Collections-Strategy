@@ -76,4 +76,4 @@ Completion certificate by TATA & Forage included in `certificate/`.
 **Ajay Dasari**  
 📧 ajaydasarii20@gmail.com  
 📞 +91 80740 62858  
-[LinkedIn Profile](#) *(Add your LinkedIn link here)*
+[LinkedIn Profile](#) *(https://www.linkedin.com/in/ajay-dasari-384174228?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)*
